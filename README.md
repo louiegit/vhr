@@ -1,6 +1,6 @@
 扫码加微信（微信ID：**a_java_boy2**），备注微人事，进群讨论。
 
-![微信ID：a_java_boy2](http://chuantu.xyz/t6/725/1584802169x1033347913.png)
+![微信ID](http://chuantu.xyz/t6/725/1584802169x1033347913.png)
 
 ## 项目介绍
 
